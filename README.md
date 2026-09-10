@@ -1,5 +1,5 @@
  <div align="center">
-<img width="3347" height="1584" alt="1000007995" src="https://github.com/user-attachments/assets/82857716-f5ec-4366-b939-d7103ddab594" />
+<img width="3347" height="1584" alt="1000007996" src="https://github.com/user-attachments/assets/01391993-6615-4fa3-83be-63da2bddbe96" />
 ... memento vivere.
 
 [atabook](https://itgtoml.atabook.org)ㅤ·ㅤ[carrd](https://itgtoml.carrd.co)
