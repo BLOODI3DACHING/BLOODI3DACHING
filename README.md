@@ -1,16 +1,22 @@
-## Hi there 👋
+ <div align="center">
+<img width="3347" height="1584" alt="1000007995" src="https://github.com/user-attachments/assets/82857716-f5ec-4366-b939-d7103ddab594" />
+... memento vivere.
 
-<!--
-**BLOODI3DACHING/BLOODI3DACHING** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[atabook](https://itgtoml.atabook.org)ㅤ·ㅤ[carrd](https://itgtoml.carrd.co)
+<br>
+<br>
+Please read carrd _before_ any interaction, *extremely mandatory.*
+<br>
+<br>
+<details>
+ <summary> information for pony town. </summary>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ <sub>
+  <br>
+  Svein . Giovanni : (James(Bucky) . Logan)
+  <br>
+  C+H advocate/strongly encouragedㅤㅤStrict no roleplayingㅤㅤDNC
+  <br>
+  and/or colour pick unless you personally asked.
+</details>
+</div>
